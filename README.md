@@ -1,1 +1,0 @@
-# jamilalqa.github.io
